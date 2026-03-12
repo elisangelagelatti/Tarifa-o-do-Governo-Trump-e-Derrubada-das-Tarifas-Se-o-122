@@ -1,0 +1,1 @@
+# Tarifa-o-do-Governo-Trump-e-Derrubada-das-Tarifas-Se-o-122
